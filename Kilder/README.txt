@@ -1,0 +1,1 @@
+Inneholder alle kilder benyttet inkluder "bilder" av nettsider benyttet.
